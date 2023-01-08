@@ -1,0 +1,3 @@
+- bath mat
+- boots
+- T-shirts
